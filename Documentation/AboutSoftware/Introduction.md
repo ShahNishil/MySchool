@@ -10,7 +10,7 @@ Yet the educators use the traditional manual approach to education and performan
 
 But have you ever thought why these methods still exists and how we created MySchool. 
 
-These traditions come from the education boards that existed before the computer came into personal lives. Education boards aimed students to think critically and independently, and how to inquire with care and logic. Instill better knowledge and make them better learners. 
+These traditions come from the education boards that existed before the computer came into personal lives. Education boards developed curicular for students to think critically and power inquire. Aimed to make them better learners. 
 
 The educator consults a few number of students with the most minimal curriculum one might ever see. Slowly the curricular increased due to the technological advancements. To solve the existing and future problems, it demand more skilled and versatile knowledge base, which increased the depth and width of the curriculum. 
 
